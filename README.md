@@ -25,20 +25,22 @@ I’m Rama Assistant Professor at SOU I.B.P. MAHILA KALA MAHAVIDYALAYA from Hind
 
 
 
-**Course Completed    Name of Institute          University / Board               Date of Award of Degree % of Marks Class**                                                      1. B.A.	          Dr.B.A.M.U Aurangabad	        Dr.B.A.M.U Aurangabad	1989	                45%	Second
-2. M.A.Hindi	      Dr.B.A.M.U Aurangabad	        Dr.B.A.M.U Aurangabad	1992	                58%	Second
-3. M.Phill.Hindi	  Dr.B.A.M.U Aurangabad	        Dr.B.A.M.U Aurangabad	19 Nov.1993	          65%	First
-4. Ph.D.Hindi	    Dr.B.A.M.U Aurangabad        	Dr.B.A.M.U Aurangabad	15 Sept.2010	-	-
-5. Tara Bai Shinde women study certificate course	Dr.B.A.M.U Aurangabad	Dr.B.A.M.U Aurangabad	2011	-	-
-6. Ms-Cit	        Akshara Computers	            M.K.C.L.	2012	                             80%	First
+	**Course Completed    Name of Institute          University / Board               Date of Award of Degree % of Marks Class**      
+
+	1. B.A.	          Dr.B.A.M.U Aurangabad	        Dr.B.A.M.U Aurangabad	1989	                45%	Second
+	2. M.A.Hindi	      Dr.B.A.M.U Aurangabad	        Dr.B.A.M.U Aurangabad	1992	                58%	Second
+	3. M.Phill.Hindi	  Dr.B.A.M.U Aurangabad	        Dr.B.A.M.U Aurangabad	19 Nov.1993	          65%	First
+	4. Ph.D.Hindi	    Dr.B.A.M.U Aurangabad        	Dr.B.A.M.U Aurangabad	15 Sept.2010	-	-
+	5. Tara Bai Shinde women study certificate course	Dr.B.A.M.U Aurangabad	Dr.B.A.M.U Aurangabad	2011	-	-
+	6. Ms-Cit	        Akshara Computers	            M.K.C.L.	2012	                             80%	First
 
 
 _Teaching/Reserch Experience of P.G./U.G. Classes : 12 yrs_
 
 
 - Academic Staff College Orientation/Refresher Course Attended :
-- **Name of Course	                Place	            Duration	                  Sponsoring Agency**
-Special Summer school Program: 	Aurangabad	  5/6/2013 To 25/6/2013	      A.S.C.,B.A.M.University
-1. Refresher Course: 	            Patiala     	1/10/2015 To 21/10/2015   	H.R.D.C. Punjabi University
-2. Summer Program: 	              Amrutsar    	16/6/2017 To6/7/2017	      H.R.D.C. Guru Nanak dev University
+
+1. Special Summer school Program: 	Aurangabad	  5/6/2013 To 25/6/2013	      A.S.C.,B.A.M.University
+2. Refresher Course: 	            Patiala     	1/10/2015 To 21/10/2015   	H.R.D.C. Punjabi University
+3. Summer Program: 	              Amrutsar    	16/6/2017 To6/7/2017	      H.R.D.C. Guru Nanak dev University
 			
